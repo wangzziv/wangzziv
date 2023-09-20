@@ -2,4 +2,3 @@
 - Plz call me wz or ziv
 - I am an architectural and Interior designer
 - Currently slash multiple jobs
-- 
